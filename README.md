@@ -1,0 +1,2 @@
+# uniquely-minded
+Unique, Rare and Exotic collection of various relevant Musical Instruments. Always room to grow, so one day I would like to see a small music shop named "TRANSITIONAL-SOUND" run self-sustainably with a small employee workforce that are direct Partner, shareholder and/or decision-valued input known as the "Deep-Minded Musicians". Our motto is  - "keeping the uniquely-minded, uniquely-binded". Please let me know if you are interested in this project, i could really use the help! Thanks
